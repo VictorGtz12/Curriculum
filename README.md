@@ -1,1 +1,1 @@
-https://victorgtz12.github.io/Curriculum/
+https://victorgtza.github.io/Curriculum/
